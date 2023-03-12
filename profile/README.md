@@ -1,10 +1,15 @@
-# Draft
+# Yo!
 
-TODO:
+Welcome to Decent Labs **North**, we're a decentralized organization.   
+Meaning; nobody really knows who's in it or who get paid when for what.
 
-- Links things we've done
-- Links things we do
-- Links things we wanna do
+It's sketchy but not as bad as it sounds.  
+The main objective is to spawn nice hacks for the planet,  
+and broadcast good vibes.  
+_Wake up_; do decent shit, that's it. 🙏
 
-It's done when it's done.
-Meanwhile come say hi: https://discord.gg/8RMRUPZ9RS :)
+Join the public thinktank/hackspace: https://discord.gg/8RMRUPZ9RS
+
+### List of Projects by author
+
+// TODO; 
