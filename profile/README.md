@@ -21,9 +21,6 @@ and broadcast good vibes.
 
 _Wake up_; do decent stuff, that's it.
 
-P.S.
-Be kind to each other 
-# 👁️
 -- End of Transmission --  
  
 Join the public thinktank/hackspace: https://discord.gg/8RMRUPZ9RS
